@@ -8,7 +8,7 @@
 
 ___
 
-![alt text](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.wikia.nocookie.net%2Fpogod%2Fimages%2F3%2F3a%2F%25D0%259F%25D1%2580%25D0%25B8%25D1%2580%25D0%25BE%25D0%25B4%25D0%25B0.jpg%2Frevision%2Flatest%3Fcb%3D20181224151953%26path-prefix%3Dru&imgrefurl=https%3A%2F%2Fweather.fandom.com%2Fru%2Fwiki%2F%25D0%259F%25D1%2580%25D0%25B8%25D1%2580%25D0%25BE%25D0%25B4%25D0%25B0&tbnid=lDTnvSuI-bmguM&vet=12ahUKEwiuoti2yeP1AhUOxeAKHWNSCXcQMygFegUIARDGAQ..i&docid=_QvGoQQu84jNDM&w=1280&h=720&q=%D0%BF%D1%80%D0%B8%D1%80%D0%BE%D0%B4%D0%B0&ved=2ahUKEwiuoti2yeP1AhUOxeAKHWNSCXcQMygFegUIARDGAQ)
+![alt text](<img src="https://www.google.com/imgres?imgurl=https%3A%2F%2Fktonanovenkogo.ru%2Fimage%2Fpriroda-gora.jpg&imgrefurl=https%3A%2F%2Fktonanovenkogo.ru%2Fvoprosy-i-otvety%2Fpriroda-chto-ehto-takoe.html&tbnid=Oyfir-3QnJypxM&vet=12ahUKEwimyMr5yuP1AhWR-qQKHVVVCXkQMygBegUIARC8AQ..i&docid=JwDbHWrJ2rJNZM&w=500&h=307&q=%D0%BF%D1%80%D0%B8%D1%80%D0%BE%D0%B4%D0%B0&ved=2ahUKEwimyMr5yuP1AhWR-qQKHVVVCXkQMygBegUIARC8AQ">)
 
 ### Зв'язатися зі мною:
 [**Telegram**](https://t.me/Nazarii0504)
