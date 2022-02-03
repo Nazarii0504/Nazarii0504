@@ -8,7 +8,7 @@
 
 ___
 
-![alt text]( )
+![alt text](https://raw.githubusercontent.com/saadeghi/saadeghi/master/dino.gif )
 
 ### Зв'язатися зі мною:
 [**Telegram**](https://t.me/Nazarii0504)
