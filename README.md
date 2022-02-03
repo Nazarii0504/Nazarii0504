@@ -8,7 +8,7 @@
 
 ___
 
-![alt text]( widht="40">)
+![alt text]( )
 
 ### Зв'язатися зі мною:
 [**Telegram**](https://t.me/Nazarii0504)
