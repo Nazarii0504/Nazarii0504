@@ -8,7 +8,7 @@
 
 ___
 
-![alt text](<img src="https://www.google.com/imgres?imgurl=https%3A%2F%2Fktonanovenkogo.ru%2Fimage%2Fpriroda-gora.jpg&imgrefurl=https%3A%2F%2Fktonanovenkogo.ru%2Fvoprosy-i-otvety%2Fpriroda-chto-ehto-takoe.html&tbnid=Oyfir-3QnJypxM&vet=12ahUKEwimyMr5yuP1AhWR-qQKHVVVCXkQMygBegUIARC8AQ..i&docid=JwDbHWrJ2rJNZM&w=500&h=307&q=%D0%BF%D1%80%D0%B8%D1%80%D0%BE%D0%B4%D0%B0&ved=2ahUKEwimyMr5yuP1AhWR-qQKHVVVCXkQMygBegUIARC8AQ">)
+![alt text](<img src="https://www.google.com/imgres?imgurl=https%3A%2F%2Fktonanovenkogo.ru%2Fimage%2Fpriroda-gora.jpg&imgrefurl=https%3A%2F%2Fktonanovenkogo.ru%2Fvoprosy-i-otvety%2Fpriroda-chto-ehto-takoe.html&tbnid=Oyfir-3QnJypxM&vet=12ahUKEwimyMr5yuP1AhWR-qQKHVVVCXkQMygBegUIARC8AQ..i&docid=JwDbHWrJ2rJNZM&w=500&h=307&q=%D0%BF%D1%80%D0%B8%D1%80%D0%BE%D0%B4%D0%B0&ved=2ahUKEwimyMr5yuP1AhWR-qQKHVVVCXkQMygBegUIARC8AQ" widht="40">)
 
 ### Зв'язатися зі мною:
 [**Telegram**](https://t.me/Nazarii0504)
